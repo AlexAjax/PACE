@@ -1,0 +1,9 @@
+## Withdrawal Policies
+### Partial Withdrawal
+Emory students may withdraw from one or more courses until 4:00pm on the Friday of the sixth full week of class of the semester after the Add/Drop/Swap period, provided that the student continues to carry a load of twelve credit hours or is in his or her final semester of residency as a graduating senior. In order for a partial withdrawal to be processed, a student must complete a withdrawal form through the Office for Undergraduate Education, consult with his or her course instructor and adviser of record, and receive signatures from both. These signatures indicate only that consultation has occurred, not that the course instructor and adviser necessarily approve of the student’s decision. Completed forms must be returned to the Office for Undergraduate Education before the deadline.
+### One-Time Partial Withdrawal
+In addition, students will be allowed a **One-Time Partial Withdrawal** from a course after the sixth week withdrawal deadline and **until the tenth week of classes **during their first two semesters of full-time residency at Emory College, provided that they maintain a twelve credit hour course load. Only one late withdrawal is allowed in the first year. An eligible student must complete a withdrawal form and follow the appropriate procedures as outlined above. 
+**Deadlines for One-Time Partial Withdrawals**
+- Fall 2013 Semester: Friday, November 15 at 4:00pm
+- Spring 2014 Semester: Friday, April 4 at 4:00pm
+*This voluntary withdrawal policy applies to first-year students, transfer students, and Oxford Continuees. This policy does not apply to students who are on Study Abroad. 

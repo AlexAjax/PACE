@@ -1,0 +1,13 @@
+Dear PACE Faculty Advisers,
+
+We hope you have had an enjoyable and productive summer.
+The connections you create with students are integral to their success at Emory. We are deeply grateful to each of you for working with us to make their arrivals and transitions to life at Emory as smooth as possible.
+Your first-year advisees have been preparing for their conversations with you and other advisers as part of the PACE Program summer Blackboard course. They will be sending you introductory emails between August 19 and 26. **The OUE has scheduled initial advising meetings for Monday, August 26, between 9:00am and 12:00pm.** Unless otherwise notified, you should plan to be in your office during this time. Students are responsible for contacting you and coordinating your subsequent meetings.
+The relationships you create with your advisees are the most important part of this program; the PACE Handbook is designed to help answer questions you may encounter. It contains useful information for advising first-year students, including calendars, contact sheets, answers to frequently asked questions, and a Departments and Programs at a Glance section outlining departmental and academic program requirements and prerequisites. We have worked to make the handbook more user-friendly this year.
+We also recommend that you give close attention to Section I, Faculty Advising Guidelines, which contains (among other things) brief summaries of relevant changes and additions to academic policies and infrastructures.
+In addition to the Handbook and the First-Year Course Atlas, you have access to your advisees' information (including unofficial transcripts) on OPUS and further resources on the PACE Faculty Advising 2013–2014 Blackboard site. If you have questions about your advising meetings, please contact your department's PACE liaison (these are listed in Section VI). If you would like to see the PACE Orientation Blackboard course, you may contact Alex Alexander at s.a.alexander@emory.edu. 
+If your advisees do not contact you, or if you have any additional questions, please do not hesitate to contact our office at 727-7373 or email us at oue.advising@emory.edu.
+Thank you again for your participation and commitment to the PACE Program. We look forward to working with you throughout the year.
+Sincerely,
+Jason Breyan, PhD, Assistant Dean, Emory College of Arts and Sciences
+Tina McDowell, Assistant Director of PACE, Emory College of Arts and Sciences
